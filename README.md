@@ -15,5 +15,5 @@
 Qualquer dúvida entre em contato
 <a href="mailto:samuel.campos.ribeiro@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"/></a>
 
-![](https://tenor.com/pt-BR/view/orange-cat-dancing-gif-8764917836851697753)## Hi there 👋
+![](https://media1.tenor.com/m/eaM-VYcH2FkAAAAd/orange-cat-dancing.gif)## Hi there 👋
 
